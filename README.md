@@ -92,4 +92,4 @@ Experienced Frontend Developer with 2+ years in building scalable web applicatio
 
 ---
 
-📫 **How to reach me**: [Email](mailto:netexpert311@gmail.com) | [LinkedIn](https://www.linkedin.com/in/alexandrNaumenok) | [Telegram](https://t.me/s)
+📫 **How to reach me**: [Email](mailto:netexpert311@gmail.com) | [LinkedIn](https://www.linkedin.com/in/alexandrNaumenok) | [Telegram](https://t.me/sanches311)
